@@ -6,7 +6,7 @@ Saya seorang **Mahasiswa** di [UTDI](https://www.utdi.ac.id/).
 
 Saya pernah Mengikuti **MSIB Batch 5** di [Dicoding](https://www.dicoding.com/).
 
-Saya sedang Mengikuti **MSIB Batch 6** di [Trans Retail Indonesia](https://www.linkedin.com/company/pt-trans-retail-indonesia/mycompany/verification/).
+Saya pernah Mengikuti **MSIB Batch 6** di [Trans Retail Indonesia](https://www.linkedin.com/company/pt-trans-retail-indonesia/mycompany/verification/).
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/ayub09/)ku ya.
 
